@@ -1,1 +1,1 @@
-# ENDYS-e-DERICK
+# -DERICK
